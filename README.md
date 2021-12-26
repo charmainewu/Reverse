@@ -12,5 +12,5 @@ So even my bones have turned to ashes
 
 I still live
 
---- <Shock> Eng. Ver. AmaLee 
+--- Shock, Eng. Ver., AmaLee 
 
